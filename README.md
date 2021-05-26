@@ -1,4 +1,4 @@
-# Maleltiew de l'olfacte, a què són degudes?
+# Malelties de l'olfacte, a què són degudes?
 Anosmia: És la pèrdua de l'olfacte. De vegades és congènita (present des del moment del naixement) i pot ser degut a un trastorn d'origen genètic.
 
 Hipoòsmia. És una reducció en la capacitat per detectar olors.
